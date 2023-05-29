@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @L4CTOSE
+- 👀 I’m interested in coding bookmarklets
+- 🌱 I’m currently learning JavaScript
+- 💞️ I’m looking to collaborate on one of my projects
+- 📫 How to reach me DISCORD BRO
